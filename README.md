@@ -9,23 +9,6 @@
 ![image](https://github.com/user-attachments/assets/95cd44d7-d655-4295-8197-4374a7387c0f)
 
 # ITlan - Trainee & Course Management
-![image](https://github.com/user-attachments/assets/c495d573-c5d4-472b-b4fa-92a15820162e)
-
-![image](https://github.com/user-attachments/assets/1e81f6b0-f771-4113-889a-6d244288e194)
-
-![image](https://github.com/user-attachments/assets/3ff80856-5a1c-4980-be99-6069851d9c48)
-
-![image](https://github.com/user-attachments/assets/1c020e4a-dd70-441c-b46a-d46b386c7921)
-
-![image](https://github.com/user-attachments/assets/afa12147-4d4f-4b9a-b209-d684aef509d2)
-
-![image](https://github.com/user-attachments/assets/25a1b1f8-07e7-4ed9-9939-41ea28c98b92)
-
-![image](https://github.com/user-attachments/assets/1a854175-43c8-4635-882d-552c500fb684)
-
-![image](https://github.com/user-attachments/assets/2bbb4d79-c9bc-4b35-9206-e39e99bcc181)
-
-![image](https://github.com/user-attachments/assets/96b5eec5-fa8a-4072-a26e-02ebcb39d2de)
 
 ![image](https://github.com/user-attachments/assets/3a40c413-d02e-43c1-a80d-78a54ef3e891)
 
